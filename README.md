@@ -1,0 +1,2 @@
+# Hocam
+Minikoşşş hediyoşş
